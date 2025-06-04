@@ -1,2 +1,0 @@
-# Sam
-Trabalho Unifil
